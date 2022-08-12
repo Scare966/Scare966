@@ -1,4 +1,4 @@
-### floating through the void
+### 🌌 floating through the void 🌌
 
 <!--
 **Scare966/Scare966** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
